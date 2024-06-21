@@ -44,3 +44,5 @@ https://github.com/NAIST-SE/AttractingContributors/discussions/1086 (Discussion)
 
 10.Taishio Soba Touka (https://maps.app.goo.gl/DexLGNczyMMfQ53e9)
 
+11.ラーメンか！チャーハンか！ (https://g.co/kgs/bviNRUY)
+
